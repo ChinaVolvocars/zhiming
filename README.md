@@ -2,8 +2,8 @@
 
 ### 第二期课程 
  
- - NO.1-暂无整理中... （[音频文件](audio/NO-1.m4a)）
- - NO.2 （[音频文件](audio/NO-2.m4a)）
+ - NO.1-暂无整理中... （[音频文件](audio/NO-1.ma)）
+ - NO.2 （[音频文件](https://github.com/ChinaVolvocars/zhiming/blob/master/audio/NO-2.m4a)）
 
 
 ### 需要更多 ?
