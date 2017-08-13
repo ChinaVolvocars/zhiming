@@ -25,7 +25,7 @@
 ### 如有侵权,请联系我删除
 
  - 邮箱：([Email](Atlantisspeed@gmail.com))
- 
+ - 邮箱
 ![wechat_mine][1]
 
 [1]:https://github.com/ChinaVolvocars/zhiming/blob/master/img/wechat_num_mine.jpg
