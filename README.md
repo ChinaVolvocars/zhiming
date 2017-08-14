@@ -18,14 +18,14 @@
  - 被和谐之后请点击这里 密码: ri6z ([百度云盘](http://pan.baidu.com/s/1o8FRr7O ))
 
 
-### 特别感谢音频整理人员（起的名字奇葩打不出来）
+### 特别感谢音频整理人员（起的名字文艺打不出来）
 
  - 毋小宁。
  - letacia
 
 ### 如有侵权,请联系我删除
 
- - 邮箱：([Email](Atlantisspeed@gmail.com))
+ - 邮箱：Atlantisspeed@gmail.com
 
 #### 微信
 
