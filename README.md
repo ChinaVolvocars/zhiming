@@ -31,12 +31,6 @@
 
  - 邮箱：Atlantisspeed@gmail.com
 
-#### 微信
-
-![wechat_mine][1]
-
-[1]:https://github.com/ChinaVolvocars/zhiming/blob/master/img/wechat_num_mine.jpg
-
 ### License
 ```
    Copyright (C) 2017 MINDORKS NEXTGEN PRIVATE LIMITED
