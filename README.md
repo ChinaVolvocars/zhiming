@@ -2,7 +2,7 @@
 
 ### 第二期课程 
  
- - NO.1-暂无整理中... [音频文件]()
+ - NO.1 ([**音频文件**](http://pan.baidu.com/s/1eRFlsWE))
 
  - NO.2 ([**音频文件**](http://pan.baidu.com/s/1i5h55Ut))
 
