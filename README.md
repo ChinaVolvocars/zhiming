@@ -11,6 +11,8 @@
      - [**NO.3-B 音频文件**](http://pan.baidu.com/s/1qXQwxbA)
  
  - NO.4 ([**音频文件**](http://pan.baidu.com/s/1slc5Ogl))
+ 
+ - NO.5 ([**音频文件**](http://pan.baidu.com/s/1pKJDlKv))
 
 
 ### 需要更多 ?
