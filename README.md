@@ -14,7 +14,10 @@
  
  - NO.5 ([**音频文件**](http://pan.baidu.com/s/1pKJDlKv))
 
- - NO.6 ([**音频文件整理中**](http://pan.baidu.com/s/1geJnGGz))
+ - NO.6 ([**音频文件**](http://pan.baidu.com/s/1geJnGGz))
+
+
+#### 第二期所有课程 ([**完整版音频文件**](http://pan.baidu.com/s/1o85c5nW))
 
 
 ### 需要更多 ?
